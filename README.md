@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **alokdeep1172001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13H04R57cmxjHnhE1eZPyGJgBWt7lRXGa/view?usp=drive_link](https://drive.google.com/file/d/13H04R57cmxjHnhE1eZPyGJgBWt7lRXGa/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1wlArs_TUOt59Jx222HCULWrdEobRa5fY/view](https://drive.google.com/file/d/1wlArs_TUOt59Jx222HCULWrdEobRa5fY/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
