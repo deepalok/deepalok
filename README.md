@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Alok Deep</h1>
 <h3 align="center">A passionate Developer from India</h3>
 
-- 📫 How to reach me **alokdeep1172001@gmail.com**
+- 📫 How to reach me **deepalok.de@gmail.com**
 
 <!-- - 📄 Know about my experiences [https://drive.google.com/file/d/1wlArs_TUOt59Jx222HCULWrdEobRa5fY/view](https://drive.google.com/file/d/1wlArs_TUOt59Jx222HCULWrdEobRa5fY/view)
 -->
